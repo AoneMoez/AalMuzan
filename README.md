@@ -1,2 +1,0 @@
-# AoneMoez
-AoneMoez
